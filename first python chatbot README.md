@@ -1,4 +1,4 @@
-TEam members:
+Team members:
 1.Bezawada Chinmayi - 18PA1A1207
 2. Bitra Lakshmi Prasanna - 19PA1A0516
 3. Bharath Dadala - 16PA1A0421
